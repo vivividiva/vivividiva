@@ -20,7 +20,7 @@ also, i can be a but awkward sometimes because of my social anxiety (it IS that 
 🥦୭ ˚. ᵎᵎ main interests ; mha , hxh , tbhk , omori , mouthwashing
 other interests ; aot , bsd , colorful stage , sk8 , forsaken , ninah , squid game , dandys world , danganronpa , jjk , ddlc !
 
-fav music artists ; soojin , idle , aespa , radiohead , slipknot , bansheebby , kendrick lamar , tyler the creator , travis scott , babymetal.. !
+fav music artists ; soojin , idle , aespa , radiohead , slipknot , bansheebby , kendrick lamar , xxxtentacion , travis scott , babymetal.. !
 
 fav games ; okegom , roblox , minecraft , ponytown , all fnafs , yansim , undertale & deltarune... !
 
