@@ -1,10 +1,8 @@
-🥦୭ ˚. ,, i'm not gonna be your worthless punching bag
+,, The world is chocolate! Swallow it, so sweet! ''
 
-deku forever... i'm the deku who always does his best! ''
+![7614ad48dcdaa88b9feebdcdcc4341ec](https://github.com/user-attachments/assets/563ad24f-7f4c-4581-a937-a00995e7d2f7)
 
 
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/1795fa7a-3093-472d-8147-1e516b004773" />
-
-see strawpage for more information + sign atabook and tree ;3
+currently being a lucky girl somewhere over the rainbow.. 🌈
 
 
